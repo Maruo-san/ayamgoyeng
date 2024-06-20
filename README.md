@@ -1,0 +1,2 @@
+# ayamgoyeng
+Kunci
